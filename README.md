@@ -1,1 +1,2 @@
-Day 1 Woxsen 4X Training 
+Woxsen 4X Training Session
+
